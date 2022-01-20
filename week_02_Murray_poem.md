@@ -8,7 +8,7 @@ A train arrives at Ciotat Station
 
 Sensational
 
-Brand new signals to their brains
+Commanding a new kind of attention
 
 
 
